@@ -1,1 +1,1 @@
-esse projeto foi designado para acoe
+esse projeto foi designado para ações financeiras
